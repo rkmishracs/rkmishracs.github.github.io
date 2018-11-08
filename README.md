@@ -1,2 +1,2 @@
-# rkmishracs.github.github.io
+# rkmishracs.github.io
 My Website
